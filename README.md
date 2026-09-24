@@ -1,1 +1,1 @@
-# my project
+# EMMANUEL NJINI PROJECTS 2026
